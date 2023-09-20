@@ -1,5 +1,5 @@
 # 💫 About Me:
-• Proactividad<br>• Autodidacta<br>• Gusto por aprender<br>• Apertura al cambio<br>• Control y seguimiento<br>• Trabajo en equipo<br>• Creatividad<br>• Adaptabilidad<br>• Responsabilidad
+• Proactivity<br>• Autodidact<br>• Enjoyment of learning<br>• Opening to change<br>• Control and follow up<br>• Teamwork<br>• Creativity<br>• Adaptability<br>• Responsability
 
 
 ## 🌐 Socials:
